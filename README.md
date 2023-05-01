@@ -1,7 +1,7 @@
-🎓 Carnegie Mellon University MISM '19, Temple University '18
-🍂 Hobbies: Hiking, cooking, reading and embroidery 
-🦅 Go birds and go Phils!
-😃 Pronouns: She/Her/Hers
+🎓 Carnegie Mellon University MISM '19, Temple University '18  
+🍂 Hobbies: Hiking, cooking, reading and embroidery   
+🦅 Go birds and go Phils!  
+😃 Pronouns: She/Her/Hers  
 
 
 <!--
