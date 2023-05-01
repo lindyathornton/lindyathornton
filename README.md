@@ -1,4 +1,8 @@
-### Hi there 👋
+🎓 Carnegie Mellon University MISM '19, Temple University '18
+🍂 Hobbies: Hiking, cooking, reading and embroidery 
+🦅 Go birds and go Phils!
+😃 Pronouns: She/Her/Hers
+
 
 <!--
 **lindyathornton/lindyathornton** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
